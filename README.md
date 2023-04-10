@@ -1,6 +1,6 @@
 ### Hi, I'm Ako. 👋
 
-- ❤️ I like playing Onmyoji 🌩 and Crazy-racing Kart-rider 🚗.
+- ❤️ I like playing Genshin Impact 🌩 and Crazy-racing Kart-rider 🚗.
 - 💬 Be free to ask me about anything [here](https://github.com/akolina1/akolina1/issues).
 
 ### My Contributions
